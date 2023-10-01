@@ -1,4 +1,3 @@
-![image](https://github.com/Rahulrajput81680/Rahulrajput81680/assets/116091729/75bda68c-cba8-45ea-928d-6054b650adb8)### Hi there 👋
 
 Hello 👋 I am rahul Rajput.
 First of all, thanks for visiting my profile. Here, what you should know about me:
